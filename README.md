@@ -1,1 +1,3 @@
 # Escritores-y-grandes-profesiones
+Abella, Juan
+Ingeniero electricista. Nació en Buenos Aires, en 1866.Hizo sus estudios en el King ‘s College de Londres de donde egresó y realizó en varias oportunidades viajes de estudio por Inglaterra y los Estados Unidos. Fue el primer director del alumbrado público de la ciudad de Buenos Aires y su nombre quedó ligado a los servicios edilicios de la misma. Puso en marcha el primer tranvía eléctrico de Buenos Aires en 1897; fue subintendente del pueblo de Belgrano, y posteriormente. Director de Yacimientos Petrolíferos Fiscales, ingeniero electricista de la Armada y miembro de la Caja de Jubilaciones Ferroviarias. Falleció en esta capital, el 26 de julio de 1938.
